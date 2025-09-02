@@ -21,7 +21,7 @@
 
 ## 🌐 Vamos nos conectar?
 
-[![LinkedIn](www.linkedin.com/in/flavio-rodrigues-3b673837b)  
+Linkedin: www.linkedin.com/in/flavio-rodrigues-3b673837b 
 📫 Email: flaviorsouza777@gmail.com
 
 ---
